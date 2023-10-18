@@ -1,0 +1,2 @@
+# psychic-lamp
+FAVOUR WORLD
